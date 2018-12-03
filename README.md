@@ -1,2 +1,0 @@
-# acroyogatampabay.com
-acroyogatampabay.com
